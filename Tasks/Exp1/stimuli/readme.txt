@@ -1,0 +1,1 @@
+For copyright reasons, the images in this folders have been replaced by placeholders. Please substitute with your own images of choice.
